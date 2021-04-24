@@ -22,5 +22,5 @@ for the last one... tie between "Insight (hard)", "@-@ (hard)", "U Got That (Cam
 what else?
 i'm learning how to animnate with moon animator and (hopefully) learn lua!
 
-i don't really have anything else to share
+i don't really have anything else to share, then.
 bye lol
