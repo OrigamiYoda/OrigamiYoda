@@ -17,5 +17,5 @@ what else?
 nothing, i'm pretty boring
 
 
-i don't really have anything else to share, then.
+i guess i don't really have anything else to share then.
 bye lol
